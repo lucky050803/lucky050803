@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lucky050803
+- 👋 Hi, I’m me
 - 👀 I’m interested in things
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on things
